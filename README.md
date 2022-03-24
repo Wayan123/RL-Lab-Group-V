@@ -9,7 +9,7 @@ Tugas RL Pertemuan pertama
 
 Format word atau pdf.
 
-Kumpulkan dengan menggunakan email kirim ke wayan.orbitfutureacademy.sch.id. Setiap kelompok berisi 5 orang, masing-masing kelas agar dapat diwakili 1 orang dalam kelompok.
+Kumpulkan dengan menggunakan email kirim ke wayan@orbitfutureacademy.sch.id. Setiap kelompok berisi 5 orang, masing-masing kelas agar dapat diwakili 1 orang dalam kelompok.
 
 Contoh, tiap kelompok terdiri dari: 1 orang dari kelas:
 
